@@ -1,1 +1,1 @@
-# me2
+If you don’t like working out, if you just don’t enjoy fitness, maybe you just haven’t found the thing that really clicks with you yet. I went through a lot, trying different stuff. Now I’m using the app [https://madmuscles.com/review](https://madmuscles.com/review) with a subscription, and I actually enjoy it. The workouts are adjusted really well, there’s an AI coach for tips, and lots of advice to make everything more comfortable.
